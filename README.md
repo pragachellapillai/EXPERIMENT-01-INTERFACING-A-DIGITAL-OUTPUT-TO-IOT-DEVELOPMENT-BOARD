@@ -3,7 +3,7 @@
 
 **DATE: 19.03.2025**
 
-**NAME: Pragaharshitha NC **
+**NAME: Pragaharshitha NC**
 
 **ROLL NO: 212222110033**
 
